@@ -1,1 +1,1 @@
-Gabriel is now a software Engineer
+God is good
